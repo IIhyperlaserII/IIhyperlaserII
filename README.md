@@ -5,3 +5,7 @@
  I am socially awkward and struggle with keeping up conversations n communicating in general so please
  be patient with me. Anyhow feel free to interact ! Ill gladly talk with you and dont worry about asking any questions!
  . i dont bite . 
+
+
+
+im still figuring github out.
