@@ -21,10 +21,4 @@
 
 
 Thank you for reading ! ^^
-
-
-
-
-
-
-pls dotn mind any grammatical / spelling mistakes . ty .
+pls don't mind any grammatical / spelling mistakes . ty .
