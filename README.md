@@ -13,4 +13,3 @@
 
 
 
-![image alt](https://github.com/IIhyperlaserII/IIhyperlaserII/blob/65301d9f5f77a001a4780feee11d9c6aea42248d/Untitled359_20260310171022.png)
