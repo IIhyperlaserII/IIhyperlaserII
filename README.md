@@ -1,12 +1,7 @@
 
  I aint doin alot 
 
-                                                                  Anyways i am mostly offtab or making ponies, so whispering is the way                                                                                 to go if you want to interact.
-
-                                                                   I am socially awkward and struggle with keeping conversations alive,                                                                       n communicating in general so please be patient with me. 
-                                                                   Anyhow feel free to interact ! Ill gladly talk with you, and dont                                                                                       worry about asking any questions!
-                                                                                          . i dont bite . 
-
+![image alt](https://github.com/IIhyperlaserII/IIhyperlaserII/blob/3a932da3b9d0709529a79df14bd1fc337a98c736/Untitled353_20260310152553.png)
 
 
 im still figuring github out.
