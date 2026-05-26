@@ -32,7 +32,7 @@ pronouns: Welp this is simple, I mostly go by he / him or they / them. But, i al
 BE AWARE BEFORE INTERACTING!!
   (this might include some topics that a lot of people get uncomfortable with. Probably idk)
 
-I am very bad at communicating and im mostly semi verbal , more leaning towards my real life but it still shows inside the internet, i take time to process some things so please be patient. My vocabulary is also very low so i might overuse some words. I am also very clumsy and i mess up w the chat a lot (Example : typing in the character selection. have happened before, i hope never again) So please dont mind if i just randomly disappear  out of the reality.
+I am very bad at communicating , i take time to process some things so please be patient. My vocabulary is also very low so i might overuse some words. I am also very clumsy and i mess up w the chat a lot (Example : typing in the character selection. have happened before, i hope never again) So please dont mind if i just randomly disappear  out of the reality.
 
 I get overwhelmed very easily, and i mean very easily. I cant handle long talks most of the time unless im actually interested talking with you. Another thing that makes me overwhelmed are crowds. I HATE talking to multiple people at the same time, it just drains me so fast for some reason. I'll most likely still keep talking tho, i have a bad habit of not respecting my own boundaries and due to that i just feel miserable after. Due to my struggle with communication i dont know how to express my feelings, and keeping them in just makes me feel worse, so i will often put overwhelmed in my name to inform people i aint feelin the best and get some of the weight off my shoulders. (c*h is always encouraged whenever i feel bad)
 
