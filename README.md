@@ -1,5 +1,4 @@
 
-![image alt](https://github.com/IIhyperlaserII/IIhyperlaserII/blob/2a391e86ebdda89336f81b839f9c0cac0309b7f9/%20-8.jpg)
 
 
 
