@@ -1,4 +1,8 @@
 
+![image alt](https://github.com/IIhyperlaserII/IIhyperlaserII/blob/2a391e86ebdda89336f81b839f9c0cac0309b7f9/%20-8.jpg)
+
+
+
  Hello hello!! this is very fresh and i dont look forward to make it looks super cool...
  Anyways i made this for you to hopefully get to know abotu me, or wtv.
 
