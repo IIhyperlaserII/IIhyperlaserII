@@ -9,7 +9,7 @@
  
  Cuddles and hugs is always welcome and encouraged! i dont care if im getting covered. You can c*h even when i have a dni, thats just means ion want to interact. 
 
- Feel free to interact always unless a dni!! Besides my struggle with communication i loooveee making friends!! More about this later.
+ Feel free to interact always unless a dni!! Besides my struggle with communication i loooveee making friends!! More about this later. But please remember that i rarely check public chat!! So whispering is the way to go.
 
 
 
