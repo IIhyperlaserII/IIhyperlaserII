@@ -21,7 +21,8 @@ names: So i really dont care about this one... My name is Apollo and feel free t
                            Andrew - bad things
                                             Rocket - Phighting! 
                                                           Travis - The moon i rot behind
-                                                                          Medkit - phighting!
+                                                                               Medkit - phighting!
+                                                                                              Slingshot - phighting!
 
 Again, i do not really care how you call me , im fine with my own name and my c-link names. Use the one you prefer!
 
