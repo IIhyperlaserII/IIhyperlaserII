@@ -1,5 +1,9 @@
 
 
+IM REMAKING TS SOON TRUST ME 😭😭😭😭😭😭😭😭😭😭😭😭
+
+
+
 
 
  Hello hello!! this is very fresh and i dont look forward to make it looks super cool...
