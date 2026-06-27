@@ -1,6 +1,5 @@
 
-
-IM REMAKING TS SOON TRUST ME 😭😭😭😭😭😭😭😭😭😭😭😭
+FOLLOW - - > @MothConsider
 
 
 
