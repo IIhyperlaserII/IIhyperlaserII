@@ -4,4 +4,4 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=mothconsider&label=Targets%20spotted&style=flat"  alt="mothconsider" /> </p>     
 
 
-<h5 align="center"> <a href="https://pronouns.cc/@HostileMeds">prns.cc</a> <h5 align="center"> <a href="https://hostilemeds.straw.page">Straw</a>   <h5 align="center"> <a href="https://meds.atabook.org">Ata.</a>     <h5 align="center">  
+<h5 align="center"> <a href="https://pronouns.cc/@HostileMeds">prns.cc</a> <h5 align="center">   <h5 align="center"> <a href="https://meds.atabook.org">Ata.</a>     <h5 align="center">  
