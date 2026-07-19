@@ -9,6 +9,13 @@
 <h4 align="center">  Me and my gang frfr
 
 <h6 align="center">  THE Larp pile of 2026
-⠀⠀
-  ⠀⠀⠀
+
+
+
+
+
+  ⠀⠀
+  ⠀
+  ⠀
+  ⠀
 <p align="center"> <img width="700" height="490" alt="Image" src="https://github.com/user-attachments/assets/dbfa6429-b8c0-4817-8a28-fb510d901e67" /> </p>
