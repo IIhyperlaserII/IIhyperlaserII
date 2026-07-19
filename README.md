@@ -6,6 +6,6 @@
 
 <h5 align="center"> <a href="https://pronouns.cc/@HostileMeds">prns.cc</a> <h5 align="center">   <h5 align="center"> <a href="https://meds.atabook.org">Ata.</a>     <h5 align="center">  
 
-<h4 align="center"> < Me and my gang frfr
+<h4 align="center">  Me and my gang frfr
 
 <p align="center"> <img width="700" height="490" alt="Image" src="https://github.com/user-attachments/assets/dbfa6429-b8c0-4817-8a28-fb510d901e67" /> </p>
