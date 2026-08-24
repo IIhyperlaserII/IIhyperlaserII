@@ -9,10 +9,10 @@
 <p aling="center"> <img width="500" height="300" alt="myparty" src="https://github.com/user-attachments/assets/57e6bdeb-45a6-4a85-9b85-2807b586621b" />
 ⠀⠀
  ⠀  ⠀
-⠀  ⠀
+⠀  
 
 <h4 align="center">  Me and my party <3
-⠀⠀<h6 align="center"> I want them dead.
+⠀⠀<h6 align="center">  I want them dead.
 ⠀⠀⠀
  ⠀
  ⠀⠀
